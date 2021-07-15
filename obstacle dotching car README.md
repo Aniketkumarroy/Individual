@@ -1,1 +1,1 @@
-# Individual-project
+# Individual
